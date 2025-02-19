@@ -1,3 +1,3 @@
 # Lab 4
-Name:\
+Name: James Willis
 Help Received:
