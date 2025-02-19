@@ -1,3 +1,3 @@
 # Lab 4
 Name: James Willis
-Help Received:
+Help Received: **Gramlin** Stolls
